@@ -1,1 +1,3 @@
-# nicks-basic-fashion
+# Sandra's new brand
+# Myrha Paris
+# Coming soon.. 
